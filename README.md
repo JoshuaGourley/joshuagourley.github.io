@@ -1,1 +1,0 @@
-# joshuagourley.github.io
